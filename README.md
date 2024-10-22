@@ -1,1 +1,1 @@
-# readme
+👨‍💻 Apprentice Network Administrator | 🎓 Currently studying for a Mastère MICSI | 🎮 Passionate about video games and strategic analysis, with a strong team spirit. 🏋️‍♂️ Dedicated sports enthusiast, disciplined and persevering. Seeking internship or apprenticeship opportunities to apply my skills in network administration. 💼 Open to collaborations and exciting projects. Feel free to contact me to discuss professional opportunities!
